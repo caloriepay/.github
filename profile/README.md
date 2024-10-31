@@ -1,4 +1,4 @@
-[최종-포스터.pdf](https://github.com/user-attachments/files/17586208/-.pdf)## Hi there 👋
+[최종-포스터.pdf](https://github.com/user-attachments/files/17586208/-.pdf)
 
 <!--
 
